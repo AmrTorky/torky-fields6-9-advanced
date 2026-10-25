@@ -1,1 +1,1 @@
-# Scientist Amr Torky — Fields 6–9: Advanced Fundamental Domains
+# Scientist Amr Torky — torky-fields6-9-advanced
